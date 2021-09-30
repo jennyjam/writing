@@ -9,7 +9,6 @@
 
 
 
-
 * Before the Show Starts
 * During the Show
 * After the Show

@@ -1,6 +1,4 @@
-                                                           I WISH THIS WAS TRUE
-
-
+# I WISH THIS WAS TRUE
 
 ​	I wish there was such thing called a pencil house where there is black stained glass where the led is supposed to be. There is a door in the eraser and when you open it it brings you to a painting area where you can draw and paint. 
 
